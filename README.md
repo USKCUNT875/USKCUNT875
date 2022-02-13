@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @USKCUNT875
-- 👀 I’m interested in ...men and women
-- 🌱 I’m currently learning ...sex
-- 💞️ I’m looking to collaborate on ... doing anything you want
+- 👀 I’m interested in .women
+- 🌱 I’m currently good at...sex
+- 💞️ I’m looking to te on ... doing anything you want
 - 📫 How to reach me . stumbers88@gmail.com..
 
 <!---
